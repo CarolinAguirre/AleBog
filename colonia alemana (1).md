@@ -15,7 +15,7 @@ Teniendo como objetivo central analizar el impacto  del intercambio cultural ent
 
 **Hipótesis:** 
 
-Bogotá siendo la ciudad capital, al ser un lugar de importancia económica y política es normal, ser un punto de flujo ciudadanos de todo origen, donde se albergan no solo unas costumbres propias, sino integrando también costumbres foráneas con el tiempo. Así que se parte de la premisa que el intercambio con la cultura alemana es consecuencia de la inmmigracion masiva en medio de la Segunda Guerra Mundial y las tensiones políticas al interior del país, incidiendo en la forma en que la sociedad bogotana configuró sus relaciones sociales en medio de los sucesos del siglo XX. De lo cual se derivarían en situaciones de regionalismo y xenofobia, que hoy en día prevalecen y se manifiesta como una larga tradición en la ciudad. 
+Bogotá siendo la ciudad capital, al ser un lugar de importancia económica y política es normal, ser un punto de flujo ciudadanos de todo origen, donde se albergan no solo unas costumbres propias, sino integrando también costumbres foráneas con el tiempo. Así que se parte de la premisa que el intercambio con la cultura alemana es consecuencia de la inmmigracion masiva en medio de la Segunda Guerra Mundial y las tensiones políticas al interior del país, incidiendo en la forma en que la sociedad bogotana configuró sus relaciones sociales en medio de los sucesos del siglo XX. De lo cual se derivarían en situaciones de regionalismo y xenofobia, que hoy en día prevalecen y se manifiesta como una larga tradición en la ciudad.
 
 
 **Introducción**
