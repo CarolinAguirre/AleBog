@@ -1,12 +1,11 @@
 
+# LA SOCIEDAD BOGOTANA EN MEDIO DEL INTERCAMBIO CULTURAL CON INMIGRANTES ALEMANES EN EL PERIODO DE LA SEGUNDA GUERRA MUNDIAL
 
-                      <center>#LA SOCIEDAD BOGOTANA EN MEDIO DEL INTERCAMBIO CULTURAL CON INMIGRANTES ALEMANES EN EL PERIODO DE LA SEGUNDA GUERRA MUNDIAL
 
+## **Diana Carolina Aguirre y Nelson Jordy Rubio** ##
+### **Licenciatura en Educación Básica con Énfasis en Ciencias Sociales** ###
 
-##**Diana Carolina Aguirre y Nelson Jordy Rubio**##
-###**Licenciatura en Educación Básica con Énfasis en Ciencias Sociales**###
-
-####**Problema de investigación:** ####
+#### **Problema de investigación:** ####
 
 Esta pequeña exploración pretende responder ¿Cómo influyó el intercambio cultural entre inmigrantes alemanes y bogotanos, en la configuración de la sociedad capitalina, bajo un panorama político internacional álgido en el periodo de 1935 a 1945?
 
