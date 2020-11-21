@@ -30,18 +30,33 @@ En este punto es importante hacer brevemente dos contrastes, puesto que bajo est
 
 Este espacio se utilizó como sitio de intercambio de harapos, y en general sitio de congregación; sin embargo, no pasaron desapercibidos, ya que pese a sus malas condiciones y hábitos, fueron pieza clave en llevar mensajes, actuar como espías, frente al bipartidismo, jóvenes que pese a su poca educación, gracias a estos trabajos aprendieron a estar informados, aprendieron a informar y a sacarle provecho a esta labor, siendo las primeras personas en aparecer ante cada disturbio civil importante en la ciudad.  
 
+
 ![gamines](https://raw.githubusercontent.com/CarolinAguirre/Intercambio_Cultural/main/gamines%201.jpeg)
+
+imagen 1: "Gamines", fotografía tomada a principios de siglo por Ernst Rothlisberger e incluída en su libro "El Dorado". © Derechos Reservados ’(en Muñoz (1938) revista credencial. n° 12)
+
 
 Por otro lado, se debe mencionar cómo se identificaba desde el exterior (por medio de los viajeros) a Bogotá y a su población, esto se logra gracias a los archivos de la Universidad estadounidense Indiana University Bloomington, en su serie: Colombia: Crossroads of the Americas, para el año 1942, describiendo una ciudad gris, con edificios elegantes y modernos, fuertemente religiosa, epicentro de negocios de las clases altas y educadas, de profesionales que nunca han roto su fe tradicional. También se caracteriza como una población altamente intelectual, pero con una vida íntima de las clases sociales altas muy  difícil de penetrar, excepto si se era amigo de la familia, en donde las relaciones sociales dentro de los núcleos familiares por lo general mantenían el mismo patrón, los hombres dueños del hogar y sus hijos mayores se ocupaban de los negocios y reuniones en clubes, mientras las esposas e hijas se mantenían dentro de una vida elegante y aislada.
 
-(aquí va una imagen de los clase alta)
+![vida social](https://github.com/CarolinAguirre/Intercambio_Cultural/blob/main/la%20vida%20social.jpg?raw=true)
+
+imagen 2: Sección La Vida Social. Periodico El Tiempo, 01 agosto 1940.  Todos los derechos reservados.
 
 Curiosamente no se describe con tanta precisión la otra cara de la ciudad, como se puede apreciar en un video titulado Reel No. 4 (Oceanía), perteneciente al Museo de Arqueología y Antropología de la Universidad de Pennsylvania, una mirada más cotidiana en las calles de la ciudad, donde sus habitantes por lo general tenían una vestimenta elegante, aunque también permite ver a las personas humildes de la plaza central de mercado de Bogotá ubicada entre la carreras décima y once y las calles décima y once, o personas de los barrios aledaños al centro de bogotá de forma más recatada, con vestimentas más modestas caracterizadas por la ruana, y por las labores propias del mercado, o del arreo de burros para llevar agua desde la quebrada, un poco menos impecables que quienes transitaban el centro y norte de la ciudad. 
 
-(aquí va una imagen de los clase baja)
 
+![plaza de mercado](https://github.com/CarolinAguirre/Intercambio_Cultural/blob/main/plaza%20de%20mercado.jpg?raw=true)
+
+Imagen 3: Plaza Central de Mercado de Bogotá: Foto 4. Fotógrafo: Cuéllas Jiménez, Gumersindo, 1891 - 1958. Nota de fotografía: Año 1930 aproximadamente. Todos los Derechos Reservados. 
 
 En segundo lugar, debemos hablar de los inmigrantes y sobre todo de los alemanes, para la historia en general del país, no se desconoce su paso por las diferentes ciudades desde por lo menos 1921, como se muestran en documentos oficiales, puesto que aportaron en gran medida al desarrollo industrial y por ende económico del país. No obstante, para el periodo de la Segunda Guerra Mundial en donde, debido a la persecución y las listas negras, ya no sólo en Bogotá se discutía el bipartidismo, sino las mismas relaciones comerciales, sociales, educativas, con esta colonia existente en la ciudad.
+
+
+![progreso aleman](https://github.com/CarolinAguirre/Intercambio_Cultural/blob/main/progreso%20aleman.jpg?raw=true)
+ 
+ Imagen 4: El Progreso Arquitectonico del Pais. Periodico El Tiempo. 17 de junio 1936  todos los derechos reservados.
+
+
 
 Esto queda evidenciado en otro video perteneciente a la serie: Colombia: Crossroads of the Americas, mencionada anteriormente, para el año 1942, a una Bogotá que albergaba Alemanes Nazis, para 1940, en Europa habian menos 3000 alemanes, muchos de ellos eran personas sólidas de negocios y profesionales, describiendo que quienes habían arribado a Colombia habían sido como una ‘’sombra torcida”, es decir, generando un manto de duda sobre la población inmigrante en general.
 
@@ -54,6 +69,15 @@ Ahora antes de los problemas sociales a causa de  la guerra, sobre cómo funcion
 > *‘’A esos extranjeros se los endiosaba ó se los odiaba con exageración; posiblemente ellos mismos daban motivos suficientes para ambas actitudes. Sin olvidar los 		>grandes esfuerzos que muchos alemanes hicieron por adaptarse a condiciones objetivas muy difíciles, conviene añadir que en muchos casos los alemanes que ya habían 		>logrado una significativa posición en su medio, despreciaban profundamente las diversas manifestaciones de lo auténticamente  "criollo" y asumían una actitud muy 		>arrogante.’’* (Ibid, pág 78)
 
 Esto estuvo muy marcado en Bogotá ya que afectaba directamente las relaciones e intereses de las familias de la clase alta, así que dichas relaciones forjadas comenzaron a romperse, inclusive dándose una fuerte conducta xenófoba, hasta el punto de invisibilizar los aportes al desarrollo económico y social, siendo el caso por ejemplo del cese de las actividades educativas del Colegio Alemán (Deutsche Schule), el cual fué fundado por Elisabeth Schrader y Anton Kraus en febrero de 1922, en el centro de Bogotá, siendo uno de los colegios biculturales más antiguos del país, pero que como consecuencia del panorama internacional, debió cerrar sus puertas desde 1941 hasta 1953, e inclusive para retomar sus actividades debió cambiar su  nombre a uno ´neutral´, manteniendo el legado bajo el nombre de ‘’Colegio Andino’’.
+
+
+![colegio aleman1](https://github.com/CarolinAguirre/Intercambio_Cultural/blob/main/colegio%20aleman%201.jpg?raw=true)
+
+
+![colegio aleman2](https://github.com/CarolinAguirre/Intercambio_Cultural/blob/main/colegio%20aleman%202.jpg?raw=true)
+
+Imagen 5 y 6. Colegio Aleman 1925 / Colegio Aleman 1935. Colegio Andino - Historia. Todos los derechos reservados
+
 
 En tal periodo los hijos de las familias alemanas debieron ser acogidos por otras instituciones educativas en un intento de solidaridad, pero con grandes restricciones, puesto que no podían hablar en su lengua materna, ni hacer algún tipo de alusión a la cultura alemana. Cabe destacar que muchos niños y jóvenes fueron retirados de los colegios e internados en sus casas, debido al riesgo que suponían para la vida pública, esta situación permaneció durante varios años en donde a las familias alemanas se les pedía borrar su memoria para pasar lo más desapercibido posible en la sociedad bogotana.
 
@@ -80,6 +104,12 @@ Claramente las familias procedentes de Bogotá podían visitarlos y compartir lo
 >‘’Fusagasugá, 25 de junio de 1944
 >Muchacho querido:
 >Ahora son las 5 de la tarde y estamos todos en el comedor escribiendo nuestras cartas. Los domingos son los días más terribles para mi. La misa no me ayuda nada, al contrario, me pone a pensar que Dios está lejos de mi. Me siento confundido. Cuál es mi religión y cuál es mi país. Ésas son las dos cosas a las que uno no puede pedir y yo no tengo claro a quién pedirle nada. Esto es lo que se llama ABANDONO total. Todo el día hablo mi lengua con gente de mi tierra pero estamos en otra tierra. Perdón si te parece una bobada esto. Los domingos generalmente escribo bobadas. Los días de entre semana estamos en los cafetales y arreglamos los jardines pero el domingo no […]. Hoy me senté en la terraza a ver llegar carros de Bogotá con familias. Mujeres y niños que vienen a ver a los  hombres. Todos sentados junto a la piscina en familia. ¿La  nuestra habrá fracasado para siempre? No quiero ni pensarlo. Quien soy yo aquí sin ustedes. Nadie. (Vásquez, 2004, p.950)’’
+
+
+![alemanes concentrados](https://github.com/CarolinAguirre/Intercambio_Cultural/blob/main/alemanes%20concentrados.jpg?raw=true)
+
+Imagen 7: Los Alemanes Concentrados. Artista: Daniel Rodriguez. No. de Registro: AP4911. En Colección de Arte. Obra. Red Cultural del Banco de la República en Colombia. Todos los Derechos Reservados.
+
 
 Todo esto sucedió en medio de complots políticos desde 1941 a 1945, como se menciona en (Galvis, 1995), gestado por movimientos conservadores, en asocio con militares y hasta ascensoristas, contra el presidente Eduardo Santos y posteriormente contra el presidente Alfonso Lopez Pumarejo, por lo cual las presiones de la alianza con Estados Unidos en pro de ‘’la defensa a ultranza del hemisferio occidental’’ se ejercían con mayor fuerza; por ejemplo, en atención a la órdenes emitidas por Estados Unidos para efectuar las repatriaciones de forma efectiva.
 
