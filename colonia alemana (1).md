@@ -30,6 +30,8 @@ En este punto es importante hacer brevemente dos contrastes, puesto que bajo est
 
 Este espacio se utilizó como sitio de intercambio de harapos, y en general sitio de congregación; sin embargo, no pasaron desapercibidos, ya que pese a sus malas condiciones y hábitos, fueron pieza clave en llevar mensajes, actuar como espías, frente al bipartidismo, jóvenes que pese a su poca educación, gracias a estos trabajos aprendieron a estar informados, aprendieron a informar y a sacarle provecho a esta labor, siendo las primeras personas en aparecer ante cada disturbio civil importante en la ciudad.  
 
+![gamines](https://raw.githubusercontent.com/CarolinAguirre/Intercambio_Cultural/main/gamines%201.jpeg)
+
 Por otro lado, se debe mencionar cómo se identificaba desde el exterior (por medio de los viajeros) a Bogotá y a su población, esto se logra gracias a los archivos de la Universidad estadounidense Indiana University Bloomington, en su serie: Colombia: Crossroads of the Americas, para el año 1942, describiendo una ciudad gris, con edificios elegantes y modernos, fuertemente religiosa, epicentro de negocios de las clases altas y educadas, de profesionales que nunca han roto su fe tradicional. También se caracteriza como una población altamente intelectual, pero con una vida íntima de las clases sociales altas muy  difícil de penetrar, excepto si se era amigo de la familia, en donde las relaciones sociales dentro de los núcleos familiares por lo general mantenían el mismo patrón, los hombres dueños del hogar y sus hijos mayores se ocupaban de los negocios y reuniones en clubes, mientras las esposas e hijas se mantenían dentro de una vida elegante y aislada.
 
 (aquí va una imagen de los clase alta)
