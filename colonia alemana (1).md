@@ -158,4 +158,18 @@ Biermann, E. (2001). Distantes y distintos: Los emigrantes alemanes en Colombia 
 
 S. Galvis y A. Donadío, A. Colombia nazi, 1939-1945: espionaje alemán: la cacería del FBI: Santos, López y los pactos secretos, Hombre Nuevo Editores, Medellín, 2011.
 
+Imagen 1: "Gamines", fotografía tomada a principios de siglo por Ernst Rothlisberger e incluída en su libro "El Dorado". © Derechos Reservados ’(en Muñoz (1938) revista credencial. n° 12) Tomado de https://www.banrepcultural.org/biblioteca-virtual/credencial-historia/numero-12/los-chinos-bogotanos-comienzos-de-siglo-1900-1930
+
+Imagen 2: Sección: La Vida Social. Pág. 7. Periodico El Tiempo, (01 agosto 1940).  Todos los Derechos Reservados. Tomado de https://news.google.com/newspapers?nid=N2osnxbUuuUC&dat=19400801&printsec=frontpage&hl=es
+
+Imagen 3: Plaza Central de Mercado de Bogotá: Foto 4. Fotógrafo: Cuéllar Jiménez, Gumersindo, 1891 - 1958. Nota de fotografía: Año 1930 aproximadamente. En Colección fotográfica - Gumersindo Cuéllar. Biblioteca Virtual. Banco de la República. Todos los Derechos Reservados.  Tomado de https://babel.banrepcultural.org/digital/collection/p17054coll19/id/1037
+
+Imagen 4: El Progreso Arquitectónico del País Pág, 2. Periodico El Tiempo. (17 de junio 1936).Todos los Derechos Reservados. Tomado de https://news.google.com/newspapers?nid=1706&dat=19360617&id=U9kbAAAAIBAJ&sjid=6lAEAAAAIBAJ&pg=839,4441986&hl=es
+
+Imagen 5: Colegio Alemán. (Bogotá, 1925). Colegio Andino - Historia. Todos los Derechos Reservados. Tomado de https://www.colegioandino.edu.co/wp-content/uploads/2014/10/historia_1.jpg
+
+Imagen 6: Colegio Alemán. (Bogotá, 1935). Colegio Andino - Historia. Todos los Derechos Reservados. Tomado de  https://www.colegioandino.edu.co/wp-content/uploads/2014/10/historia_2.jpg
+
+Imagen 7: Los Alemanes Concentrados. Artista: Daniel Rodriguez. No. de Registro: AP4911. En Colección de Arte. Obra. Red Cultural del Banco de la República en Colombia. Todos los Derechos Reservados. Tomado de https://www.banrepcultural.org/coleccion-de-arte/obra/los-alemanes-concentrados-ap4911
+
 
