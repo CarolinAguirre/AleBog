@@ -179,4 +179,4 @@ Imagen 6: Colegio Alemán. (Bogotá, 1935). Colegio Andino - Historia. Todos los
 Imagen 7: Los Alemanes Concentrados. Artista: Daniel Rodriguez. No. de Registro: AP4911. En Colección de Arte. Obra. Red Cultural del Banco de la República en Colombia. Todos los Derechos Reservados. Tomado de https://www.banrepcultural.org/coleccion-de-arte/obra/los-alemanes-concentrados-ap4911
 
 
-Prueba
+
