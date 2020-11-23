@@ -158,6 +158,9 @@ Biermann, E. (2001). Distantes y distintos: Los emigrantes alemanes en Colombia 
 
 S. Galvis y A. Donadío, A. Colombia nazi, 1939-1945: espionaje alemán: la cacería del FBI: Santos, López y los pactos secretos, Hombre Nuevo Editores, Medellín, 2011.
 
+Cardona, L.(2018). Una colectividad Honorablemente sospechosa. Los alemanes, Colombia y la segunda Guerra Mundial. Universidad De La Plata. Facultad de humanidades y Ciencias: La Plata.
+
+
 Imagen 1: "Gamines", fotografía tomada a principios de siglo por Ernst Rothlisberger e incluída en su libro "El Dorado". © Derechos Reservados ’(en Muñoz (1938) revista credencial. n° 12) Tomado de https://www.banrepcultural.org/biblioteca-virtual/credencial-historia/numero-12/los-chinos-bogotanos-comienzos-de-siglo-1900-1930
 
 Imagen 2: Sección: La Vida Social. Pág. 7. Periodico El Tiempo, (01 agosto 1940).  Todos los Derechos Reservados. Tomado de https://news.google.com/newspapers?nid=N2osnxbUuuUC&dat=19400801&printsec=frontpage&hl=es
